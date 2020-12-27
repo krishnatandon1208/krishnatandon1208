@@ -9,5 +9,5 @@
 - 🤔 I’m looking for help to improve website optimization techniques.
 - 💬 Ask me about latest technologies, mobile games 🎮
 - 📫 How to reach me: krishnatandon.1208@gmail.com
-- ⚡ Fun fact: I always care for the clients to give the best possible solution that suits and fits well for the business.
+- ⚡ Fact: I always care for the clients to give the best possible solution that suits and fits well for the business.
 
